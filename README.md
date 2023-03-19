@@ -1,2 +1,5 @@
 # Practice
-to test how to contribute as a team
+
+Hiiiiii
+Narendra This Side
+Gomlu Momlu
